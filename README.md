@@ -1,1 +1,1 @@
-Git Tutorial Ali Bosca
+UChicago Student Resource Guide
